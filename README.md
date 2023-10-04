@@ -3,3 +3,4 @@
 这个程序的完成离不开网友[被遗忘者]的帮助。<br>
 为方便下载源码，已上传到蓝奏云<br>
 [点击此处下载](https://blzxteam.lanzouj.com/iH2gG1amm67e)
+https://blzxteam.com/thread-20.htm
